@@ -11,10 +11,11 @@ Passionate about ideating, conceptualizing, and producing consumer-centric techn
 Looking for a Developer? Let's schedule a Zoom chat!
 
 You can reach me via the following channels:
+
 [Website](https://)<br/>
 [LinkedIn](https://)<br/>
 [UpWork](https://)<br/>
-[Email:silasikani44@gmail.com](https://)<br/>
+[Email:silasikani44@gmail.com](https://mail.google.com/mail/u/0/?tab=rm&ogbl#inbox?compose=new)<br/>
 [Whatsapp](https://api.whatsapp.com/send/?phone=2347052814252&text&app_absent=0)<br/>
 
 
